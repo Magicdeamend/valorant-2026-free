@@ -4,7 +4,7 @@
 
 ---
 
-## [📥 Download Valorant 📥](https://uneycheats.github.io/UneyCheats/)
+## [📥 Download Valorant 📥](https://unezcheats.github.io/UnezCheats/)
 
 **Deployment Requirements:**
 
